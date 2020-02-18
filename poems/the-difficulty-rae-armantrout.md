@@ -1,0 +1,21 @@
+# The Difficulty
+## Rae Armantrout
+This film, like many others,
+claims we’ll enjoy life
+now that we’ve come through
+
+difficulties, dangers
+so incredibly condensed
+that they must be over.
+
+If the hardship
+was undergone by others,
+we identified with them
+
+and, if the danger was survived
+by simpler life forms,
+they’re included in this moment
+
+when the credits roll
+and we don’t know
+when to stand

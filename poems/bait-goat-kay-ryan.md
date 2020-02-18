@@ -1,0 +1,24 @@
+# Bait Goat
+## Kay Ryan
+There is a
+distance where
+magnets pull,
+we feel, having
+held them
+back. Likewise
+there is a
+distance where
+words attract.
+Set one out
+like a bait goat
+and wait and
+seven others
+will approach.
+But watch out:
+roving packs can
+pull your word
+away. You
+find your stake
+yanked and some
+rough bunch
+to thank.

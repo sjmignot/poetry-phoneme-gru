@@ -1,0 +1,25 @@
+# A Start
+## Elaine Equi
+The
+    silver
+          hour
+
+drops—
+
+a spider
+on the mirror.
+
+          *
+
+Silver
+the hour
+
+like drops
+of a spider’s
+mirror.
+
+          *
+
+The silver drops,
+the spider’s hour,
+the mirror . . .

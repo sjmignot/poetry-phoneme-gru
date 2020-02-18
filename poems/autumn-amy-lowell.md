@@ -1,0 +1,6 @@
+# Autumn
+## Amy Lowell
+All day I have watched the purple vine leaves
+Fall into the water.
+And now in the moonlight they still fall,
+But each leaf is fringed with silver.

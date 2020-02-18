@@ -1,0 +1,20 @@
+# My Dad, in America
+## Shann Ray
+Your hand on my jaw
+              but gently
+
+and that picture of you
+punching through snow
+              to bring two deer, a gopher,
+
+and a magpie
+to the old Highwalker woman
+
+who spoke only Cheyenne
+              and traced our footprints
+
+on leather she later chewed to soften.
+              We need to know in America there is still blood
+
+for forgiveness.
+Dead things for the new day.

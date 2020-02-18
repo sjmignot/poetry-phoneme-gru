@@ -1,0 +1,24 @@
+# Fourth of July, 2012
+## Robyn Schiff
+I remember a performance
+of _Antigone_ in which she
+threw herself on the floor of
+the universe and picked up
+a piece of dust. Is that
+the particle? It startled me.
+Was it Scripted? Directed?
+Driven? I am a girl, Antigone.
+I have a sister. We love
+each other terribly. I am a woman
+of property. The milk of the footlights.
+The folds of the curtain. I remember
+a performance of _Antigone_. She stooped.
+There was a wild particle.
+It was glorified by my distance.
+I heard the hooves of the dust.
+The ticking of the script
+calibrating oblivion. I saw
+the particle hanging
+and Antigone needed something
+to do with her hands
+and she did it.

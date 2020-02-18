@@ -1,0 +1,19 @@
+# Shepherd Road
+## Ashley Anna McHugh
+Eventually, I grab the back-door key
+from the cup-holder, slip a folded list
+into my pocket. Inside, I dig through closets
+
+to find the lincoln logs, the cardinal statue,
+the clock shaped like an elephant, a kettle—
+
+but the whole time I half expect to hear her:
+the careful shuffle of her slow, flat feet;
+her walker's unpredictable clap; her voice
+
+trembling with evangelical vibrato.
+Beside the bed, I find a King James Bible,
+
+her careful marginalia penciled in:
+ _Glory! Glory! Amen!_ I set it down.
+I shouldn't want it just because it's hers.

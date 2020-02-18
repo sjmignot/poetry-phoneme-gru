@@ -1,0 +1,22 @@
+# The Two Times I Loved You the Most In a Car
+## Dorothea Grossman
+It was your idea
+to park and watch the elephants
+swaying among the trees
+like royalty
+at that make-believe safari
+near Laguna.
+I didn’t know anything that big
+could be so quiet.
+
+And once, you stopped
+on a dark desert road
+to show me the stars
+climbing over each other
+riotously
+like insects
+like an orchestra
+thrashing its way
+through time itself
+I never saw light that way
+again.

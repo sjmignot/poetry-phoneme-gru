@@ -1,0 +1,18 @@
+# The Fourth of July Parade
+## Fran Haraway
+Stripes and stars,
+Antique cars,
+Pretty girls,
+Baton twirls,
+Spangled gowns,
+Friendly clowns,
+Smiling folks,
+Papered spokes,
+Marching feet,
+Endless heat,
+Clapping hands,
+High school bands,
+Town traditions,
+Politicians,
+Perspiration,
+Celebration!

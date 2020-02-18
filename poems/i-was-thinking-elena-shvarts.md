@@ -1,0 +1,13 @@
+# "I was thinking..."
+## Elena Shvarts
+I was thinking: God has abandoned me,
+So, what of it—he is a priceless ray of light,
+Or a thin needle in the haystack of man. And cruel.
+I have turned away from him—torment me no more.
+But which of us is more cruel? More to be feared?
+The one who has no body, of course.
+He has made us endless, vast—
+So that our grief will know no bounds.
+
+
+ _Providence, 2001_

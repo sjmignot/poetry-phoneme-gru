@@ -1,0 +1,35 @@
+# This Corner of the Western World
+## Jennifer Chang
+Dark thing,
+make a myth of yourself:
+
+all women turn into lilacs,
+
+all men grow sick of their errant scent.
+You could learn
+
+to build a window, to change flesh
+into isinglass, nothing
+
+but a brittle river, a love of bone.
+
+You could snap like a branch— _No,
+_
+
+this way, he says, and the fence
+releases the forest,
+
+and every blue insect finds an inch of skin.
+He loves low voices, diffidence
+
+on the invented trail,
+
+the stones you fuck him on. Yes
+to sweat’s souvenir, yes to his fist
+
+in your hair, you bite
+
+because you can. Silence
+rides the back of your throat,
+
+his tongue, your name.

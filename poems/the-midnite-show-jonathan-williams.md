@@ -1,0 +1,25 @@
+# The Midnite Show
+## Jonathan Williams
+Red-Wigglers, Night-Crawlers
+& Other Worms
+look out
+into the crapulous moonlight:
+
+figures of women cascading through the Sunday night;
+
+no beer in sight.
+
+I remember the _Night-blooming_
+ _Cereus_ by Dr. Thornton, Engraver, Blake’s
+patron, it
+hangs in the hall outside the bedroom
+swaying hungrily like these
+giant white goddesses of the dark grotto…
+
+there are touring cars
+and men with large guns
+singing through the woods
+
+behind us.
+
+﻿

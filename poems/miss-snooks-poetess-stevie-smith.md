@@ -1,0 +1,15 @@
+# Miss Snooks, Poetess
+## Stevie Smith
+Miss Snooks was really awfully nice
+And never wrote a poem
+That was not really awfully nice
+And fitted to a woman,
+
+She therefore made no enemies
+And gave no sad surprises
+But went on being awfully nice
+And took a lot of prizes.
+
+
+ _November 1964
+_

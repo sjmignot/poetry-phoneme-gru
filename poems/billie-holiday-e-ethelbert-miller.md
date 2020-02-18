@@ -1,0 +1,11 @@
+# Billie Holiday
+## E. Ethelbert Miller
+sometimes the deaf
+hear better than the blind
+
+some men
+when they first
+heard her sing
+
+were only attracted
+to the flower in her hair

@@ -1,0 +1,19 @@
+# End Grain
+## Matthew Nienow
+is an opening, is all
+we can see
+
+of  the long
+strands that make
+
+the pathways for
+rays, bisecting
+
+annular rings,
+the most
+
+vulnerable door
+of  what makes
+
+the holiest of
+things.

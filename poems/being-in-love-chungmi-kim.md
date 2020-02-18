@@ -1,0 +1,30 @@
+# Being in Love
+## Chungmi Kim
+Awakened from a dream, I curl up
+and turn. The roses on the dresser
+smile and your words bloom.
+The red roses for Valentine’s Day.
+
+Like in a film
+thoughts of you unfold
+moment by moment.
+
+I vaguely hear
+the sound of your spoon scooping cereal
+the water stream in the shower
+the buzzing noise of your electric razor
+like a singing of cicada.
+
+Your footsteps in and out of the bedroom.
+Your lips touching my cheek lightly.
+And the sound of the door shutting.
+
+In your light
+I fall asleep again under the warm quilt
+happily like a child.
+
+Upon waking
+on the kitchen counter I find a half
+grapefruit carefully cut and sectioned.
+Such a loving touch is a milestone
+for my newly found happiness.

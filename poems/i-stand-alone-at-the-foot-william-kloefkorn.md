@@ -1,0 +1,9 @@
+# "I stand alone at the foot "
+## William Kloefkorn
+I stand alone at the foot
+Of my father’s grave,
+Trembling to tell:
+The door to the granary is open,
+Sir,
+And someone lost the bucket
+To the well.

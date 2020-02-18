@@ -1,0 +1,11 @@
+# The Rooster
+## David Elliott
+Crows and struts.
+He’s got feathers!
+He’s got guts!
+
+Oh, the rooster
+struts and crows.
+What’s he thinking?
+
+No one knows.

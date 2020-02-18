@@ -1,0 +1,13 @@
+# Flowers
+## Wendy Videlock
+for my mother
+They are fleeting.
+They are fragile.
+They require
+
+little water.
+They’ll surprise you.
+They’ll remind you
+
+that they aren’t
+and they are you.

@@ -1,0 +1,20 @@
+# Believe, Believe
+## Bob Kaufman
+Believe in this. Young apple seeds,
+In blue skies, radiating young breast,
+Not in blue-suited insects,
+Infesting society’s garments.
+
+Believe in the swinging sounds of jazz,
+Tearing the night into intricate shreds,
+Putting it back together again,
+In cool logical patterns,
+Not in the sick controllers,
+Who created only the Bomb.
+
+Let the voices of dead poets
+Ring louder in your ears
+Than the screechings mouthed
+In mildewed editorials.
+Listen to the music of centuries,
+Rising above the mushroom time.

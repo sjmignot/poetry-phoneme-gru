@@ -1,0 +1,14 @@
+# Green-Striped Melons
+## Jane Hirshfield
+They lie
+under stars in a field.
+They lie under rain in a field.
+Under sun.
+
+Some people
+are like this as well—
+like a painting
+hidden beneath another painting.
+
+An unexpected weight
+the sign of their ripeness.

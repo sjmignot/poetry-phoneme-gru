@@ -1,0 +1,6 @@
+# The Cherry Trees
+## Edward Thomas
+The cherry trees bend over and are shedding
+On the old road where all that passed are dead,
+Their petals, strewing the grass as for a wedding
+This early May morn when there is none to wed.

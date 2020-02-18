@@ -1,0 +1,29 @@
+# Ablation
+## Helen Mort
+Inside the Northern General
+they’re trying to burn away
+a small piece of your heart.
+
+I want to know which bit,
+how much
+and what it holds.
+
+My questions live
+between what doctors call the heart
+and what we mean by it,
+
+wide as the gap between brain and mind.
+And in our lineage of bypassed hearts
+we should be grateful
+
+for the literal. I know my heart
+is your heart — good for running,
+not much else
+
+and later as you sit up in your borrowed bed
+I get the whole thing wrong,
+call it _oblation_. Offering
+
+or sacriﬁce. As if you’d given something up.
+As if their tiny ﬁre was ritual
+and we could warm by it.

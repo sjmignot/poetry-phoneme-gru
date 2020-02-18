@@ -1,0 +1,17 @@
+# Poem Written with Bashō ["The sound of the water jar"]
+## Matthew Rohrer
+The sound of the water jar
+empties in the open graves
+where the refugees live.
+Because it does not touch me
+near my pillow
+I can sleep and dream
+of  the clean lines
+of  summer. What I thought
+were faces turn out
+to be elaborate plates of sweets
+not this human sadness.
+One or two inches above
+my head until the mosquito
+sticks his snout
+into my dream.

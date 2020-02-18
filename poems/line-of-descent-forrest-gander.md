@@ -1,0 +1,25 @@
+# Line of Descent
+## Forrest Gander
+Against the backdark, bright
+                              riband flickers of heat lightning.    Nearer
+                hills begin to show, to come clear
+                                                             as a hard,
+detached
+and glimmering brim
+                                             against light lifting there.
+And here, pitched over
+the braided arroyo choked with debris,
+                                                             a tent, its wan,
+cakey,
+                                road-rur color.    On the front stake, two
+                green dragonflies, riding each other, pause,
+                                             Look! cries the boy, running, the
+father behind him
+                                 running too—
+                                                               and the canyon
+opening
+                out in front of them its magisterial consequence, cramming
+                               vertiginous air down its throat—
+_to snatch him_
+                                                                    from the
+scarp.

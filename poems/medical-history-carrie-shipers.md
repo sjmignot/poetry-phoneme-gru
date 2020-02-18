@@ -1,0 +1,18 @@
+# Medical History
+## Carrie Shipers
+I wanted it: arc of red and blue
+strobing my skin, sirens singing
+my praises, the cinching embrace
+of the cot as the ambulance
+slammed shut and steered away.
+More than needle-pierce
+or dragging blade, I wanted the swab
+of alcohol and cotton, the promise
+of gauze-covered cure.
+My mother saved anyone
+who asked, but never me,
+never the way I wanted:
+her palms skimming my limbs
+for injury, her fingers finding
+what hurt, her lips whispering,
+_I got here just in time_.

@@ -1,0 +1,25 @@
+# Woman Watches Ocean on a Reef through a Glass-Bottomed Boat
+## Angela Jackson
+In the ocean one fish
+swallows the other:
+a geometric progression of
+loss.
+You are bigger than I.
+The calamity of love
+swelling out larger than us.
+And what destiny partakes of
+our dilemma?
+Swallows the cause and effect:
+eyes and kissing mouths and enlarged
+parts wanting to breathe and wanting.
+ __
+There is no gentle sense to this.
+Is there?
+Only a kind of terror
+at the chain
+of events, the scale of loss, the ordered
+ __
+destruction one against the other—
+all that something larger
+awaits its moment.
+ __

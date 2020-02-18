@@ -1,0 +1,21 @@
+# Some dreamily smoke cigarettes, some track
+## Marianne Boruch
+Some dreamily smoke cigarettes, some track
+toddlers who walk like drunks. Buzzy,
+the picnic grounds, noisy, sun-crazed, how
+forks and spoons don’t exactly lie flat.
+
+A mountain’s here, a famous overlook
+from which you’d see none of this. Like that
+first daguerreotype, its moving carriages
+and those who strolled never picked up
+
+in the long exposure, a Paris street emptied
+by the camera, only houses and lamp posts
+gone eternal. Or the one who stopped
+for a shoe shine, the one who knelt to the task.
+
+At the picnic—a commotion. A large man
+to a younger man. _I don’t know you!_ __ he’s hugging
+and laughing. _I don’t know who you are_ _,_
+he shouts over and over a stillness so immense.

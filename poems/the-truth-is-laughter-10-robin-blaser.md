@@ -1,0 +1,20 @@
+# The Truth Is Laughter 10
+## Robin Blaser
+one should never play martyr
+there are martyrs beyond you
+
+one should never argue apocalypse
+without your whole lifetime before
+you, which is impossible
+
+        Pushkin said, ‘my sadness
+        is luminous’—this is
+        his reason
+
+Ralph flew to Bristol to see her
+she said, ‘You’re not in touch with
+Eternity’
+he said, ‘Gee, that’s true,’
+then later sent a telegram,
+‘meet me in Jerusalem,’
+since he was going

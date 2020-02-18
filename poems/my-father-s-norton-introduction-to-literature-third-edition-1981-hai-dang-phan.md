@@ -1,0 +1,59 @@
+# My Father's "Norton Introduction to Literature," Third Edition (1981)
+## Hai-Dang Phan
+Certain words give him trouble: _cannibals_ , _puzzles_ , _sob_ ,
+ _bosom_ , _martyr_ , _deteriorate_ , _shake_ , _astonishes_ , _vexed_ , _ode_
+...
+These he looks up and studiously annotates in Vietnamese.
+ _Ravish_ means _cướp đoạt_ ; _shits_ is like when you have to _đi ỉa_ ;
+ _mourners_ are those whom we say are full of _buồn rầu_.
+For “even the like precurse of feared events” think _báo trước_.
+
+Its thin translucent pages are webbed with his marginalia,
+graphite ghosts of a living hand, and the notes often sound
+just like him: “All depend on how look at thing,” he pencils
+after “I first surmised the Horses’ Heads / Were toward Eternity —”
+His slanted handwriting is generally small, but firm and clear.
+His pencil is a No. 2, his preferred Hi-Liter, arctic blue.
+
+I can see my father trying out the tools of literary analysis.
+He identifies the “turning point” of “The Short and Happy Life
+of Francis Macomber”; underlines the simile in “Both the old man
+and the child stared ahead as if they were awaiting an apparition.”
+My father, as he reads, continues to notice relevant passages
+and to register significant reactions, but increasingly sorts out
+
+his ideas in English, shaking off those Vietnamese glosses.
+1981 was the same year we _vượt biển_ and came to America,
+where my father took Intro Lit (“for fun”), Comp Sci (“for job”).
+“Stopping by Woods on a Snowy Evening,” he murmurs
+something about the “dark side of life how awful it can be”
+as I begin to track silence and signal to a cold source.
+
+Reading Ransom’s “Bells for John Whiteside’s Daughter,”
+a poem about a “young girl’s death,” as my father notes,
+how could he not have been “vexed at her brown study /
+Lying so primly propped,” since he never properly observed
+(I realize this just now) his own daughter’s wake.
+_Lấy làm ngạc nhiên về_ is what it means to be astonished.
+
+Her name was Đông Xưa, Ancient Winter, but at home she’s Bebe.
+“There was such speed in her little body, / And such lightness
+in her footfall, / It is no wonder her brown study / Astonishes
+us all.” In the photo of her that hangs in my parents’ house
+she is always fourteen months old and staring into the future.
+In “reeducation camp” he had to believe she was alive
+
+because my mother on visits “took arms against her shadow.”
+Did the memory of those days sweep over him like a leaf storm
+from the pages of a forgotten autumn? Lost in the margins,
+I’m reading the way I discourage my students from reading.
+But this is “how we deal with death,” his black pen replies.
+ _Assume there is a reason for everything_ , instructs a green asterisk.
+
+Then between pp. 896-97, opened to Stevens’ “Sunday Morning,”
+I pick out a newspaper clipping, small as a stamp, an old listing
+from the 404-Employment Opps State of Minnesota, and read:
+_For current job opportunities dial_ _(_ _612_ _)_ _297_ _-_ _3180_ _.
+Answered_ _24_ _hrs._
+When I dial, the automated female voice on the other end
+tells me I have reached a non-working number.

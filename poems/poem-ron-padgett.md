@@ -1,0 +1,11 @@
+# Poem
+## Ron Padgett
+I’m in the house.
+It’s nice out: warm
+sun on cold snow.
+First day of   spring
+or last of   winter.
+My legs run down
+the stairs and out
+the door, my top
+half   here typing

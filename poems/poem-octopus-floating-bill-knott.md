@@ -1,0 +1,9 @@
+# Poem: Octopus floating . . .
+## Bill Knott
+Octopus floating
+in earth’s ink-ore core
+whose arms extend
+up here as trees
+may your branches squirt
+their black across
+my pages please

@@ -1,0 +1,85 @@
+# The Ghost of the City of New York Appears in California, May 25, 1971
+## Sotère Torregian
+It's all in a day's work   the door from Life to Death
+
+Muhammed Ali comes in one door   and Russ Meyer comes in
+    t' uther     While Ali
+          Stages a CONFAB at 11.00 AM but doesn't
+show all the cameras and tape-recorders are left
+
+With their tongues hanging out in the heat
+Under the veranda I just recoveredd from food-poisoning & look up
+
+AUSTRALIA AND NEW ZEALAND SHAKE HANDS
+        How'd you _doo_
+It is prophetic I meet a child born at the same hour
+and day as my oldest child
+I learn   your Anglo   grandfather became the
+           ArchArchimandrite
+Of Alexandria “for all the Greeks downunder”
+
+MOHAMMED ALI GIVES his speech finally “On the
+         Intoxications OF
+         LIFE” (That's for _Real_ , Folks) and tells one girl
+sitting up near the stage to
+pull her dress down because it was “showing”
+above her knee   That's _it_ it's all Over wham boom!
+
+Now Russ MEYER must be the “greatest” genius of America (?)
+His “genius” lies   in that he is the only one to successfully
+make blood spurt from a victim
+on the silver screen like a slide trombone carying a hilarious note
+
+
+                                      .... So
+many things have happened   The People's Liberation Army
+has seized the Israeli Ambassador ('Ray'.)   Bedford-
+Stuyvesant exploded again   (I wonder what's happening
+on Killens' block?)   and lava has overflowed on  (Mt) Aetna (again)
+    _Can't_    keep upt with it all
+This Hermaphrodite   running up and down the stairs with
+a sword   Hey!
+The doors slam open  the crowds emerge
+Like an age ashamed of itself
+Like an elephant with a  caulifflower ear      Some are doing
+
+           A St. Vitus dance and shooting fireworks
+out of cactus-launchers
+
+
+You come toward me like a diffident haystack
+I'm talking to you all the time you pretend not to hear me
+You're with your two pals   (One of them the “returned” of the Boogey Woogies)
+the road parts us   like a part in the hair
+of the whole Earth   and splits me with it
+The stars make a sound like a tuning-folk
+Maybe I'm learning anew lanaguage to speak a newlanguage Maybe
+
+
+What is this   Cult of the Fedora hat
+and the jalopy of the heart
+Rose of Lima   Unbeliever that I am  I believe in you so much
+
+
+“Plebiscite”              “Dolores”
+
+                  ....
+
+                              “Quitting Time”
+          Washerwomen in the elephant grass   ' _re_ listening
+
+Once again I come upon an evening 5,000 mi. away from (New York)
+the mirage of “The City” become so obsessive
+    I see Skyscrapers appear moving through the fog
+on horses' legs!
+    “With no interjection..., _oh?_ ”
+New York  my poems are always an elegy to _you_
+The horses see me coming
+the horses smell the sunset wing   _Zapata_...in whiteshadow
+still rides on it
+    Gold-club-headed exorcized Jewish demons
+happily hopping backwards
+
+
+                                                                 May 25, 1971
+                                                     2405 Alpine Road, Ca.

@@ -1,0 +1,17 @@
+# Shuffling Out Toward Morning
+## Don Welch
+After an hour in the infusion lab,
+Taxol dripping into her,
+fighting her cancer;
+
+after sitting nauseous
+next to a man
+vomiting into a Pepsi cup,
+
+she rose, palming the wall,
+stooping only to pick up
+a pen a doctor had dropped,
+
+giving it back to the doctor
+who had slipped it poorly
+into his coat.

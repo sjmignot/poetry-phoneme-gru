@@ -1,0 +1,19 @@
+# What Will Stay Behind
+## Abraham Sutzkever
+Who will stay behind, and what? A wind.
+Blindness from the blind man disappearing.
+A token of the sea: a strand of foam.
+A cloud stuck in a tree.
+
+Who will stay behind, and what? A single sound
+as genesis regrasses its creation.
+Like the violin rose that honors just itself.
+Seven grasses of that grass do understand.
+
+More than all the stars hence and northward,
+that star will stay that sinks into a tear.
+Forever in its jug, a drop of â€Šwine remains.
+What will be left here? God. Not enough for you?
+
+
+_Translated from the Yiddish_

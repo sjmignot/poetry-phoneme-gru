@@ -1,0 +1,11 @@
+# Epitaph for a Romantic Woman
+## Louise Bogan
+She has attained the permanence
+She dreamed of, where old stones lie sunning.
+Untended stalks blow over her
+Even and swift, like young men running.
+
+Always in the heart she loved
+Others had lived,—she heard their laughter.
+She lies where none has lain before,
+Where certainly none will follow after.

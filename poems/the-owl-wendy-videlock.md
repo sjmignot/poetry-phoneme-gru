@@ -1,0 +1,12 @@
+# The Owl
+## Wendy Videlock
+Beneath her nest,
+a shrew's head,
+a finch's beak
+and the bones
+of a quail attest
+
+the owl devours
+the hour,
+and disregards
+the rest.

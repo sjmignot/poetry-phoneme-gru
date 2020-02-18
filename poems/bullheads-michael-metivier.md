@@ -1,0 +1,22 @@
+# Bullheads
+## Michael Metivier
+We take more than our share,
+Several dozen from the star-
+
+Flecked cove of a red maple
+Pond, fins tapered like steeples,
+
+Gill to gill in the bucket
+And bilge, drawn from a thicket
+
+Of drowned roots
+Into the nightâ€™s cool garrotes.
+
+Sorrowful brothers
+Choking on strange ethers,
+
+Striving, eager, bent
+Toward the sky by want:
+
+It was not to be, this breathing,
+Though not for nothing.

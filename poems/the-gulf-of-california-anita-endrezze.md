@@ -1,0 +1,82 @@
+# The Gulf of California
+## Anita Endrezze
+There are two memories of tides:
+one for the deep blackness that split
+away from the mother sea
+and one for sea that found itself
+in the daybreaks of rivers.
+Yet it was all one sea
+tracked by comets and the Elegant Tern,
+seals in speckled pod-shaped skins,
+and whales, opening their small eyes
+when the hands of people drew fish
+out of the salt.
+
+Geologists tell us that the sea split
+millions of years ago
+before the Yoemem, Yoremem,
+Kunkaak, O-Otam
+curled their tongues around the names
+of themselves and raised the conch shell
+to their lips, so that the sound of nature
+became human, too:
+
+ _kalifornia vaawe_
+
+Then the sea was measured
+and divided into leagues.
+The Spanish ships called it _dangerous_
+because the sea tore in two ways,
+tide and rivers,
+so they contained it in maps
+written on dead animal skins
+with ink made from dried octopus blood
+
+ _Mar de la Kalifornia
+_
+Golfo de California
+
+Then it was named the _Vermilion Sea_
+when the red-shelled crabs clicked in the waters.
+It was the _Sea of Cortés_
+because it’s the right of the Conqueror
+to claim the world in his name.
+
+It’s his right to name hunger after himself
+and to take away rivers
+and children
+and to give back the bare bones
+of life
+in the Queen’s name.
+
+What can you say about men
+who name the mountains “mother”
+ _madre_
+when the worst curse they can shout
+defiles their mother
+in the act of creation?
+
+Now we call the Gulf of California
+ _polluted_
+with the pesticides of fields
+and the wastes of factories.
+And the voices of the fin-backed whale,
+sardines, sea-kelp, anemone,
+and turtle are quieter,
+so that we have less memory
+of the way it was
+and less hope
+for the way it will be.
+
+In the winter I eat strawberries
+from Mexico
+and oranges, sectioned and split
+apart
+on my north continental plate.
+I don’t know much about my relatives
+picking the fields near Bacum, Torim.
+I don’t know much about the spiny sea urchin,
+except that it knows more than I
+about the sea, the sea that names itself
+ _unnameable_
+movable horizon.

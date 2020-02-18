@@ -1,0 +1,7 @@
+# The Kiss
+## Kurt Brown
+That kiss I failed to give you.
+How can you forgive me?
+The kiss I would have spent on you is still
+There, within me. It will probably die there.
+But it will be the last of me to die.

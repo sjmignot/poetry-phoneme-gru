@@ -1,0 +1,35 @@
+# Geography
+## Rae Armantrout
+1
+
+Touch each chakra
+in turn and say,
+
+
+“Nothing shocks me.”
+
+
+                2
+
+Watching bombs fall
+on Syria,
+
+we feel serious,
+
+occupied,
+
+not preoccupied
+as we were
+
+previously.
+
+
+                3
+
+“Makes me end,
+where I begun,”
+
+wrote   John Donne,
+
+turning love
+into geometry.

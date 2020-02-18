@@ -1,0 +1,23 @@
+# Back Road
+## Bruce Guernsey
+Winter mornings
+driving past
+I’d see these kids
+huddled like grouse
+in the plowed ruts
+in front of their shack
+waiting for the bus,
+three small children
+bunched against the drifts
+rising behind them.
+
+This morning
+I slowed to wave
+and the smallest,
+a stick of a kid
+draped in a coat,
+grinned and raised
+his red, raw hand,
+the snowball
+packed with rock
+aimed at my face.

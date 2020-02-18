@@ -1,0 +1,41 @@
+# The Old Slave-Music
+## Sarah Morgan Bryan Piatt
+Blow back the breath of the bird,
+    Scatter the song through the air,
+There was music you never heard,
+    And cannot hear anywhere.
+ __
+It was not the sob of the vain
+    In the old, old dark so sweet,
+(I shall never hear it again,)
+    Nor the coming of fairy feet.
+ __
+It was music and music alone,
+    Not a sigh from a lover’s mouth;
+Now it comes in a phantom moan
+    From the dead and buried South.
+ __
+It was savage and fierce and glad,
+    It played with the heart at will;
+Oh, what a wizard touch it had—
+    Oh, if I could hear it still!
+ __
+Were they slaves? They were not then;
+    The music had made them free.
+They were happy women and men—
+    What more do we care to be?
+ __
+There is blood and blackness and dust,
+    There are terrible things to see,
+There are stories of swords that rust,
+    Between that music and me.
+ __
+Dark ghosts with your ghostly tunes
+    Come back till I laugh through tears;
+Dance under the sunken moons,
+    Dance over the grassy years!
+ __
+Hush, hush—I know it, I say;
+    Your armies were bright and brave,
+But the music they took away
+    Was worth—whatever they gave.

@@ -1,0 +1,7 @@
+# In Eden
+## David Ferry
+You lie in our bed as if an orchard were over us.
+
+You are what’s fallen from those fatal boughs.
+
+Where will we go when they send us away from here?

@@ -1,0 +1,7 @@
+# Aliens
+## Amy Lowell
+The chatter of little people
+Breaks on my purpose
+Like the water-drops which slowly wear the rocks to powder.
+And while I laugh
+My spirit crumbles at their teasing touch.

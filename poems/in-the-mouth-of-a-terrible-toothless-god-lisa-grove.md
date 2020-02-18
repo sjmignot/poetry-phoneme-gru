@@ -1,0 +1,21 @@
+# In the Mouth of a Terrible, Toothless God
+## Lisa Grove
+In the energy crisis my city has turned to burning angel skins.
+I read by their light, a book of elegies.
+
+A fruit fly lands on Amichai, I slap him flat
+Against the page. Now it is an elegy for him, as well,
+
+And his tomb. And I am a terrible, toothless god,
+Stringing blades of grass between the tongues of sheep.
+
+Ash of angel fire drifts over my head, falls in my coffee.
+_O Holy, Holy, Holy indigestion._
+
+I bribe the coming day with open windows
+And freshly washed underwear
+Hung out on the clothesline,
+
+Slipping hastily over the hips of winds.
+The winds know, all you have to do is
+Open your mouth, the flies will come.

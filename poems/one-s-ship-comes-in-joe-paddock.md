@@ -1,0 +1,23 @@
+# One's Ship Comes In
+## Joe Paddock
+I swear
+my way now will be
+to continue without
+plan or hope, to accept
+the drift of things, to shift
+from endless effort
+to joy in, say,
+that robin, plunging
+into the mossy shallows
+of my bird bath and
+splashing madly till
+the air shines with spray.
+Joy it will be, say,
+in Nancy, pretty in pink
+and rumpled T-shirt,
+rubbing sleep from her eyes, or
+joy even in
+just this breathing, free
+of fright and clutch, knowing
+how one’s ship comes in
+with each such breath.

@@ -1,0 +1,64 @@
+# Over the Heath
+## Rory Waterman
+
+---
+
+The truck grinds by
+and pumps out grit;
+the road glints and
+goes still.
+
+The barn owl that
+had not finished here
+returns. But with
+its fill
+
+of scavenges,
+face ruffled in mulch,
+the vole is lost
+and safe
+
+so the silent specter
+flits away, its
+moon face to
+the moon
+
+and rears unknown
+against a copse,
+claws tipped for
+the strafe
+
+and something dies
+too soon.
+
+
+
+He filled her between
+the hay bales in
+that Dutch barn, now
+abandoned,
+
+where the wind
+catches its breath
+in the stanchions,
+air gun holes.
+
+Then they sprang up
+light and lightsome
+and she tugged his hand
+with her hand
+
+as the breeze pulled
+at the poppy heads
+and rabbits shrank
+round boles.
+
+But how soon he’d
+grow indifferent
+as the tick she
+couldn’t see
+
+that was part of
+her for longer
+than he would choose
+to be.

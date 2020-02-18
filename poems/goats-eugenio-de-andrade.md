@@ -1,0 +1,14 @@
+# Goats
+## Eugénio de Andrade
+Translated from the Portuguese by Atsuro Riley
+Wherever the earth is crag and scrub, the goats are there—the black ones,
+girlishly skipping, leaping their little leaps from rock to rock. I’ve loved
+their nerve and frisk since I was small.
+
+Once my grandfather gave me one of my own. He showed me how I could serve
+myself when I got hungry, from the full-feeling bags there like warmish
+wineskins, where I’d let my hands linger some before bringing my mouth close,
+so the milk wouldn’t go to waste on my face, my neck, even my naked chest,
+which did happen sometimes, who knows if on purpose, my mind dwelling all the
+while on the savory-smelling vulva _zinha_. I called her Maltesa; she was my
+horse; I could almost say she was my first woman.

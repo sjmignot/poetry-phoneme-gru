@@ -1,0 +1,41 @@
+# Kora in Hell: Improvisations XI
+## William Carlos Williams
+
+XI
+
+1
+
+     Why pretend to remember the weather two years back? Why not? Listen close
+then repeat after others what they have just said and win a reputation for
+vivacity. Oh feed upon petals of edelweiss! one dew drop, if it be from the
+right flower, is five years’ drink!
+ __
+_______________
+__
+_Having once taken the plunge the situation that preceded it becomes obsolete
+which a moment before was alive with malignant rigidities._
+
+2
+
+     When beldams dig clams their fat hams (it’s always beldams) balanced near
+Tellus’s hide, this rhinoceros pelt, these lumped stone—buffoonery of midges
+on a bull’s thigh—invoke,—what you will: birth’s glut, awe at God’s craft,
+youth’s poverty, evolution of a child’s caper, man’s poor inconsequence.
+Eclipse of all things; sun’s self turned hen’s rump.
+
+     Cross a knife and fork and listen to the church bells! It is the harvest
+moon’s made wine of our blood. Up over the dark factory into the blue glare
+start the young poplars. They whisper: It is Sunday! It is Sunday! But the
+laws of the country have been stripped bare of leaves. Out over the marshes
+flickers our laughter. A lewd anecdote’s the chase. On through the vapory
+heather! And there at banter’s edge the city looks at us sidelong with great
+eyes—lifts to its lips heavenly milk! Lucina, O Lucina! beneficent cow, how
+have we offended thee?
+
+________________
+
+ _Hilariously happy because of some obscure wine of the_ _fancy which they
+have drunk four rollicking companions_ _take delight in the thought that they
+have thus evaded the_ _stringent laws of the county. Seeing the distant city
+bathed_ _in moonlight and staring seriously at them they liken the_ _moon to a
+cow and its light to milk._ __

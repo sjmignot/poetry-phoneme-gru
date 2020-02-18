@@ -1,0 +1,27 @@
+# The snow's/feet slip
+## Marty Walsh
+out from
+under it
+and down
+the mountain
+slope it comes
+flat on its back
+white skirt
+and billowy
+petticoats
+blowing
+back over
+its head,
+whiplashing
+rickety
+pine sapling
+as it passes,
+bowling boulders
+left and right
+until it comes
+to a juddering
+sudden heart-
+thumping stop
+just shy
+of the little village
+in the valley far below.

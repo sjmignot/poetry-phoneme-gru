@@ -1,0 +1,8 @@
+# Niagara
+## Adelaide Crapsey
+Seen on a Night in November
+How frail
+Above the bulk
+Of crashing water hangs,
+Autumnal, evanescent, wan,
+The moon.

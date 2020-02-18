@@ -1,0 +1,18 @@
+# Nulla Dies Sine Linea
+## V. Penelope Pelizzon
+_On my birthday_
+
+A crow guffaws, dirty man throwing the punch of his
+one joke. And now, nearer, a murder
+
+answers, chortling from the pale hill’s brow.
+From under my lashes’ wings they stretch
+
+clawed feet. There the unflappable years
+perch and stare. When I squint, when I
+
+grin, my new old face nearly hops
+off my old new face. Considering what’s flown,
+
+what might yet fly, I lean my chin
+on the palm where my half-cashed fortune lies.

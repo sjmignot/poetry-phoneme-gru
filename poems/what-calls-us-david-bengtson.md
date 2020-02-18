@@ -1,0 +1,8 @@
+# What Calls Us
+## David Bengtson
+In winter, it is what calls us
+from seclusion, through endless snow
+to the end of a long driveway
+where, we hope, it waits—
+this letter, this package, this
+singing of wind around an opened door.

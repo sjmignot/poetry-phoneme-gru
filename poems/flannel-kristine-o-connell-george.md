@@ -1,0 +1,15 @@
+# Flannel
+## Kristine O'Connell George
+Red and blue plaid,
+pockets with buttons,
+my camping shirt
+is flannel, worn soft,
+pine smells, campfire,
+forest moss.
+
+I keep it hidden
+in my bottom drawer—
+where no one will find it
+and wash away
+my memories.
+﻿

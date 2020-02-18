@@ -1,0 +1,8 @@
+# The Education of a Poet
+## Leslie Monsour
+Her pencil poised, she's ready to create,
+Then listens to her mind's perverse debate
+On whether what she does serves any use;
+And that is all she needs for an excuse
+To spend all afternoon and half the night
+Enjoying poems other people write.

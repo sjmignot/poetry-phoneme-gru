@@ -1,0 +1,11 @@
+# Somebody Else's Baby
+## Mary Jo Salter
+From now on they always are, for years now
+they always have been, but from now on you know
+they are, they always will be,
+
+from now on when they cry and you say
+wryly to their mother, _better you than me_ ,
+you’d better mean it, you’d better
+
+hand over what you can’t have, and gracefully.

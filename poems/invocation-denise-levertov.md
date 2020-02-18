@@ -1,0 +1,17 @@
+# Invocation
+## Denise Levertov
+Silent, about-to-be-parted-from house.
+Wood creaking, trying to sigh, impatient.
+Clicking of squirrel-teeth in the attic.
+Denuded beds, couches stripped of serapes.
+
+Deep snow shall block all entrances
+and oppress the roof and darken
+the windows.    O Lares,
+don’t leave.
+The house yawns like a bear.
+Guard its profound dreams for us,
+that it return to us when we return.
+
+
+ _November 1969_

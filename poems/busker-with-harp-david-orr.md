@@ -1,0 +1,12 @@
+# Busker with Harp
+## David Orr
+For a birth
+The fact of the harp swells into the air,
+Alien and familiar and entirely too large,
+An elephant lost in the suburbs,
+And opens with its cry a strange passage
+
+Between the harp itself, the fragile harp,
+And the almost guilty knowledge
+Of   the stroke of   luck that brought it here
+And the care with which it must depart.

@@ -1,0 +1,12 @@
+# A Worm Fed on the Heart of Corinth
+## Isaac Rosenberg
+A worm fed on the heart of Corinth,
+Babylon and Rome.
+Not Paris raped tall Helen,
+But this incestuous worm,
+Who lured her vivid beauty
+To his amorphous sleep.
+England! famous as Helen
+Is thy bethothal sung.
+To him the shadowless,
+More amorous than Solomon.

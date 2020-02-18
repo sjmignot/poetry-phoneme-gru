@@ -1,0 +1,6 @@
+# Lamenting Widow
+## Ho Xuan Huong
+A woman wails, _boo hoo_ , mourning her man
+Shut up, shame on you, don't cry to the hills!
+O little sister, I should have warned you
+Don't eat the meat, if it makes you cough blood!

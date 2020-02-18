@@ -1,0 +1,7 @@
+# Vita
+## Eleanor Ross Taylor
+When I was two feet tall
+and held the hand above,
+how could I know
+how far that limping bond would go,
+that finger-inch of love.

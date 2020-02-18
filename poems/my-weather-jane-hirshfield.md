@@ -1,0 +1,12 @@
+# My Weather
+## Jane Hirshfield
+Wakeful, sleepy, hungry, anxious,
+restless, stunned, relieved.
+
+Does a tree also?
+A mountain?
+
+A cup holds
+sugar, flour, three large rabbit-breaths of air.
+
+I hold these.

@@ -1,0 +1,17 @@
+# The Museum
+## Yves Bonnefoy
+A clamor, in the distance. A crowd running under the rain beating
+down, between the canvases the sea wind set clattering.
+
+A man passes crying something. What is he saying? What he
+knows! What he has seen! I make out his words. Ah, I almost
+understand!
+
+I took refuge in a museum. Outside the great wind mixed with
+water reigns alone from now on, shaking the glass panes.
+
+In each painting, I think, it’s as if  God were giving up on finishing
+the world.
+
+
+_Translated from the French_

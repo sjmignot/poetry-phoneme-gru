@@ -1,0 +1,17 @@
+# Opus Posthumous
+## James Longenbach
+When I painted, everybody saw.
+When I played piano, everybody heard.
+
+I ate your raspberries.
+The sign _no trespassing_ applied to me.
+
+Now, the hemlocks have grown higher than the house.
+There’s moss on my stoop, a little mildew
+In the shower but you’ve never seen my shower.
+
+I can undress by the window,
+I can sleep in the barn.
+
+The sky, which is cloudy,
+Suits the earth to which it belongs.

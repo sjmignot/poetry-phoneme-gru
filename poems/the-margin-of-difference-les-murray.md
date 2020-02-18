@@ -1,0 +1,7 @@
+# The Margin of Difference
+## Les Murray
+One and one make two,
+the literalist said.
+So far they've made five billion,
+said the lateralist, or ten
+times that, if you count the dead.

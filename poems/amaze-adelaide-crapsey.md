@@ -1,0 +1,7 @@
+# Amaze
+## Adelaide Crapsey
+I know
+Not these my hands
+And yet I think there was
+A woman like me once had hands
+Like these.

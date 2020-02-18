@@ -1,0 +1,33 @@
+# Mediterranean
+## Sudeep Sen
+  1
+
+A bright red boat
+Yellow capsicums
+
+Blue fishing nets
+Ochre fort walls
+
+  2
+
+Sahar’s silk blouse
+gold and sheer
+
+Her dark black
+_kohl_ -lined lashes
+
+  3
+
+A street child’s
+brown fists
+
+holding the rainbow
+in his small grasp
+
+  4
+
+My lost memory
+white and frozen
+
+now melts colour
+ready to refract

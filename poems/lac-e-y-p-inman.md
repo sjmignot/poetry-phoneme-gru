@@ -1,0 +1,37 @@
+# lac[e]y.
+## P. Inman
+for Tom Raworth
+                 a.    taupe. wald.
+
+             less.    commas.
+             into.    gelatin.
+
+                           *
+
+           “let’s.    call.
+          this.”
+               my.    age.
+       leaning.    into.
+           some.    dream.
+
+                           *
+
+              the.    further. he.
+        moves.    away.
+              the.    more. surfaces.
+              the.    longer.
+            they.    end.
+                as.    her. midst.
+
+                           *
+
+               my.    nose.
+                 of.    all.
+     recourse.
+      (shaped.
+       trouble.    upon.
+                    .    siecle.)
+
+              my.    polk. m’edge.
+
+﻿

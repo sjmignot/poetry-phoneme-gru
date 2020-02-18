@@ -1,0 +1,17 @@
+# Ode for Donny Hathaway
+## Wanda Coleman
+and then there are the one-hit zombies
+cursed to an eternity of Monday nights
+
+who runs our music does not make it
+controls manufacture and marketing of rhythm
+schemes on and fixes the charts. it’s polyphonic
+from the dark of the chitlin to solid gold dawn
+doublecrossed over
+
+a love come down
+
+after the plunge
+sloshing around in limbo
+
+that too sweet gospel splash

@@ -1,0 +1,12 @@
+# Blown Away
+## Tom Clark
+ephemeral as tinkerbell
+unmoored yet not unmoved
+tossed cloudward, flipped
+
+sans volition
+
+into the flow
+
+going but not wanting to go
+without the other flotsam

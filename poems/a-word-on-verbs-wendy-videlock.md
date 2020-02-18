@@ -1,0 +1,10 @@
+# A Word on Verbs
+## Wendy Videlock
+It's often those
+          who talk a streak
+
+on world affairs
+          and love and peace
+
+who seem to love
+          and peace the least.

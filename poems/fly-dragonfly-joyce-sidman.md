@@ -1,0 +1,14 @@
+# Fly, Dragonfly!
+## Joyce Sidman
+Water nymph, you have
+climbed from the shallows to don
+your dragon-colors.
+Perched on a reed stem
+all night, shedding your skin, you dry
+your wings in moonlight.
+
+Night melts into day.
+Swift birds wait to snap you up.
+Fly, dragonfly! Fly!
+
+﻿

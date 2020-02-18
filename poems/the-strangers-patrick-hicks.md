@@ -1,0 +1,25 @@
+# The Strangers
+## Patrick Hicks
+After we picked you up at the Omaha airport,
+we clamped you into a new car seat
+and listened to you yowl
+beneath the streetlights of Nebraska.
+
+Our hotel suite was plump with toys,
+ready, we hoped, to soothe you into America.
+But for a solid hour you watched the door,
+shrieking, _Umma_ , the Korean word for mother.
+
+Once or twice you glanced back at us
+and, in this netherworld where a door home
+had slammed shut forever, your terrified eyes
+paced between the past and the future.
+
+_Umma_ , you screamed, _Umma_!
+But your foster mother back in Seoul never appeared.
+
+Your new mother and I lay on the bed,
+cooing your birth name,
+until, at last, you collapsed into our arms.
+
+In time, even terror must yield to sleep.

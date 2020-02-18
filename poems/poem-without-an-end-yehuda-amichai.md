@@ -1,0 +1,18 @@
+# Poem Without an End
+## Yehuda Amichai
+Inside the brand-new museum
+there’s an old synagogue.
+Inside the synagogue
+is me.
+Inside me
+my heart.
+Inside my heart
+a museum.
+Inside the museum
+a synagogue,
+inside it
+me,
+inside me
+my heart,
+inside my heart
+a museum

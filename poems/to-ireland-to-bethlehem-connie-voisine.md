@@ -1,0 +1,74 @@
+# To Ireland, To Bethlehem
+## Connie Voisine
+The plane is packed and over sweaty heads,
+                         rumpled hair, the movie glows in the transatlantic
+nighttime
+            murmur of priests and nuns and Riverdancers returning
+
+home—a baby is cooed by an older mother, a boy feels
+                          for his seat in the dark. I’ve read my books
+            already, 2 days traveling, the difficulties
+
+technical. _I hate that money_ , says the priest beside me,
+                           and he orders another scotch, his third.
+            The Feast of the Epiphany tomorrow, he studies religious
+
+journals for a message, writes in a notebook
+                            impossibly small. _We are having problems_
+_with sound_ , the flight attendant announces,
+
+_it is not your headset_ , and so the oceans swell in silence,
+                            bright blue tumbles across the screen mutely, foam
+            collapsing over a tiny nimble figure
+
+but she darts through to a green glow,
+                            sunshine through a veil of wave, her surfboard
+tense between
+            her feet and the world’s largest ocean. Her ride
+
+is long, impossibly long—her hips stay low, a friend
+                              drops onto her wave and, together, they glide
+towards the shore.
+             No music. Just water and that blue. I check the SkyMall catalogue
+
+for something I might need and didn’t know. There are
+                              reasons I am flying over the ocean, reasons I
+              I wish I were sure of. Someday I might say, _yes, I chose_
+
+_him, and it wasn’t wise_. Or maybe we’ll be old and
+                          surrounded by our own. The screen flashes;
+              the surf is wild, but the bright sky makes me whisper,
+
+_Hawaii_ , where nothing could be that beautiful
+                          but is. The waves are bigger and she sets out,
+flowered
+               bikini, hair pulled back in a serious bun.
+
+But too soon she’s underwater, arms above her head,
+                           spinning down into a champagne sea.
+              The priest asks would I like some English chocolate. I say _no_
+__
+at first then say _yes_. I say,
+                             _how many Euros for the scotch_? The baby Jesus
+               is about to be adored by black men, foreign kings, in
+
+fact, tomorrow. They’re stumbling, the Magi,
+                         12 days across an ocean and through the desert.
+                It’s hot so they must travel at night—
+
+who wouldn’t? And there was that star, sudden and perhaps a sign.
+_We’ve already tried to get there once,_
+                I want to say to the kings. It’s cool in this 747,
+
+which later the pilot will land with only one engine.
+                          A problem with
+                compressors. But what a sweet,
+
+sweet ocean, and those few younger girls
+                         who try to ride it. And what a night,
+                warmed by the sun-shocked smell
+
+of saddle and sweat, the strong breath of camels.
+                          What carved, fragrant trunkfuls
+                born across deserts and ready to be opened before an infant
+god.

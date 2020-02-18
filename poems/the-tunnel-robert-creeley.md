@@ -1,0 +1,16 @@
+# The Tunnel
+## Robert Creeley
+Tonight, nothing is long enough—
+time isn’﻿t.
+Were there a fire,
+it would burn now.
+
+Were there a heaven,
+I would have gone long ago.
+I think that light
+is the final image.
+
+But time reoccurs,
+love—and an echo.
+A time passes
+love in the dark.
