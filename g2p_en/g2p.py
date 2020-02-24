@@ -74,7 +74,8 @@ class G2p(object):
         self.cmu = cmudict.dict()
         self.load_variables()
         self.homograph2features = construct_homograph_dictionary()
-
+        self.word_map = {}
+		
     def load_variables(self):
         self.variables = np.load(os.path.join(dirname,'checkpoint20.npz'))
         self.enc_emb = self.variables["enc_emb"]  # (29, 64). (len(graphemes), emb)
@@ -156,7 +157,7 @@ class G2p(object):
         text = ''.join(char for char in unicodedata.normalize('NFD', text)
                        if unicodedata.category(char) != 'Mn')  # Strip accents
         text = text.lower()
-        text = re.sub("[^ a-z'.,?!\-#\n\r\t_\"\']", "", text)
+        text = re.sub("[^ a-z'.,?!\-#~\r\t_\"\']", "", text)
         text = text.replace("i.e.", "that is")
         text = text.replace("e.g.", "for example")
 
@@ -183,7 +184,7 @@ class G2p(object):
 
             prons.extend(pron)
             prons.extend([" "])
-
+            self.word_map["".join(pron)] = word
         return prons[:-1]
 
 if __name__ == '__main__':
