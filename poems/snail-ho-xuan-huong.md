@@ -1,6 +1,0 @@
-# Snail
-## Ho Xuan Huong
-Mother and father gave birth to a snail
-Night and day I crawl in smelly weeds
-Dear prince, if you love me, unfasten my door
-Stop, don't poke your finger up my tail!

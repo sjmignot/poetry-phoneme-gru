@@ -1,6 +1,0 @@
-# Fifteen men on the Dead Man's Chest
-## Robert Louis Stevenson
-Fifteen men on the Dead Man's Chest —
-Yo-ho-ho, and a bottle of rum!
-Drink and the devil had done for the rest —
-Yo-ho-ho, and a bottle of rum!

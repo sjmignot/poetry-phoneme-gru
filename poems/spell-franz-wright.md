@@ -1,7 +1,0 @@
-# Spell
-## Franz Wright
-Some fish for words from shore while others, lacking in such contemplative
-tact, like to go wading in up to their chins through a torrent of bone-
-freezing diamond, knife raised, to freeze-frame incarnadine and then bid it as
-with hermetic wand flow on again, ferociously, transparently, name writ in
-river.

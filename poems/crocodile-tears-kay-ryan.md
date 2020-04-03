@@ -1,8 +1,0 @@
-# Crocodile Tears
-## Kay Ryan
-The one sincere
-crocodile has
-gone dry eyed
-for years. Why
-bother crying
-crocodile tears.

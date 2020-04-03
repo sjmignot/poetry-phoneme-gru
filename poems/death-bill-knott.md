@@ -1,5 +1,0 @@
-# Death
-## Bill Knott
-Going to sleep, I cross my hands on my chest.
-They will place my hands like this.
-It will look as though I am flying into myself.

@@ -1,9 +1,0 @@
-# Grain Field
-## Adelaide Crapsey
-Scarlet the poppies
-Blue the corn-flowers,
-Golden the wheat.
-Gold for The Eternal:
-Blue of Our Lady:
-Red for the five
-Wounds of her Son.

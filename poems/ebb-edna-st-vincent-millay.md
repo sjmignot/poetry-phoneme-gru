@@ -1,9 +1,0 @@
-# Ebb
-## Edna St. Vincent Millay
-I know what my heart is like
-      Since your love died:
-It is like a hollow ledge
-Holding a little pool
-      Left there by the tide,
-      A little tepid pool,
-Drying inward from the edge.

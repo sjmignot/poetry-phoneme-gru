@@ -1,8 +1,0 @@
-# Hawk
-## Wendy Videlock
-The forest is the only place
-where green is green and blue is blue.
-Walking the forest I have seen
-most everything. I’ve seen a you
-with yellow eyes and busted wing.
-And deep in the forest, no one knew.

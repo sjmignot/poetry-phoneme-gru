@@ -1,6 +1,0 @@
-# Wasps
-## Ho Xuan Huong
-Where are you wandering to, little fools
-Come, big sister will teach you how to write verse
-Itchy little wasps sucking rotting flowers
-Horny baby lambkins butting gaps in the fence

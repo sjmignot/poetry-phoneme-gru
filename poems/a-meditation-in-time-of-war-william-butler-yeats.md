@@ -1,7 +1,0 @@
-# A Meditation in Time of War
-## William Butler Yeats
-For one throb of the artery,
-While on that old grey stone I sat
-Under the old wind-broken tree,
-I knew that One is animate
-Mankind inanimate phantasy.

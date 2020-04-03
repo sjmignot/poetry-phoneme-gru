@@ -1,4 +1,0 @@
-# On the Steps of the Temple
-## Kahlil Gibran
-Yestereve, on the marble steps of the Temple, I saw a woman sitting between
-two men.  One side of her face was pale, the other was blushing.

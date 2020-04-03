@@ -1,8 +1,0 @@
-# "Knocks on the door"
-## Maram Al-Massri
-Knocks on the door.
-Who?
-I sweep the dust of my loneliness
-under the rug.
-I arrange a smile
-and open.

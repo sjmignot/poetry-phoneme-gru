@@ -1,8 +1,0 @@
-# Immured
-## Lily A. Long
-Within this narrow cell that I call "me",
-       I was imprisoned ere the worlds began,
-       And all the worlds must run, as first they ran,
-In silver star-dust, ere I shall be free.
-I beat my hands against the walls and find
-It is my breast I beat, O bond and blind!

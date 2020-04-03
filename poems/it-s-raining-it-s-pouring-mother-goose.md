@@ -1,7 +1,0 @@
-# "It's raining, it's pouring ... "
-## Mother Goose
-It’s raining, it’s pouring,
-    The old man’s snoring.
-He got into bed
-    And bumped his head
-And couldn’t get up in the morning.

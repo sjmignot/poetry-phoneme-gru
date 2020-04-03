@@ -1,9 +1,0 @@
-# The Dream of a Lover
-## Anonymous
-Benedicite! whate dreamed I this nyght?
-Methought the worlde was turnyd up so downe
-The sun, the moone had lost their force and lyght,
-The sea also drowned both toure and towne.
-Yet more marvel how that I heard the sounde
-Of onys voice saying: beare in thy mynd,
-Thi lady hath forgotten to be kynd.

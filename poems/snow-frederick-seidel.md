@@ -1,7 +1,0 @@
-# Snow
-## Frederick Seidel
-Snow is what it does.
-It falls and it stays and it goes.
-It melts and it is here somewhere.
-We all will get there. _
-_
