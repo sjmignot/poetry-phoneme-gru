@@ -1,0 +1,3 @@
+*.pickle
+poems/
+training-checkpoints/
