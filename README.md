@@ -5,3 +5,5 @@ Test character-RNN variations:
 - GRU v. LSTM
 - character encoding length
 - phonetic embedding
+- number of layers
+- dropout
