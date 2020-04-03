@@ -1,3 +1,4 @@
 *.pickle
 poems/
 training_checkpoints/
+logs/
